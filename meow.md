@@ -1,4 +1,4 @@
-<img width="461" height="461" alt="image" src="https://github.com/user-attachments/assets/e70d36c8-18c3-4078-a7ba-6cb2552765e1" />
+<img width="454" height="454" alt="N8 Cat Mascot on Transparent Background" src="https://github.com/user-attachments/assets/071fb001-f2aa-4a0c-91eb-214e8708b80c" />
 
 
 __________________________
